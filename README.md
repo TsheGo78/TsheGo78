@@ -1,0 +1,3 @@
+- 👋 Hi, stalker 
+- 👀 I’m interested kmowing new people in the same industry
+- ⚡ Fun fact: Agent Of Chaos
